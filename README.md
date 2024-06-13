@@ -1,1 +1,1 @@
-# kt-p
+ini buat apa
